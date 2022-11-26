@@ -61,3 +61,6 @@ here.``
 
 [![прикол](https://webgolovolomki.com/wp-content/uploads/2021/01/znimok-ekrana-2021-01-23-o-19.42.58.png)](https://www.youtube.com/watch?v=v2AC41dglnM
 )
+
+## Зачеркивание
+
